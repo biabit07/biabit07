@@ -9,4 +9,4 @@ Você pode entrar em contato comigo 📫
 
 @anabiaoliveirafabricio@gmail.com
 
-![][(link]((https://tenor.com/pt-BR/view/isso-foi-fofo-gif-2514319886472714943))
+![]([link](https://tenor.com/pt-BR/view/isso-foi-fofo-gif-2514319886472714943))
